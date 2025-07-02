@@ -36,7 +36,7 @@ The platform provides a range of educational materials, including courses on mar
 
 Members gain exclusive access to the platform's Discord server, where they can interact with the community and participate in various learning activities.
 
-[Join Wealth Group Credit Card Pay Now](https://kelexbawz.com/wealthgroup)
+[Join Wealth Group Credit Card Pay Now](https://whop.com/wealthgroup?a=kelechienwere1234)
 
 ---
 
@@ -48,9 +48,9 @@ Wealth Group Credit Card Pay operates on a subscription model:
 
 This fee grants full access to all features, including the active community, expert analyses, trading tools, and educational resources.
 
-[Join Wealth Group Credit Card Pay Now to Start Saving Today](https://kelexbawz.com/wealthgroup)
+[Join Wealth Group Credit Card Pay Now to Start Saving Today](https://whop.com/wealthgroup?a=kelechienwere1234)
 
----
+--- 
 
 ## Who Is It For?
 
@@ -74,7 +74,7 @@ Wealth Group Credit Card Pay is designed for:
 
 * **Advanced Tools:** Utilization of sophisticated trading tools to optimize strategies.
 
-[Join Wealth Group Credit Card Pay Now to Enhance Your Trading Skills](https://kelexbawz.com/wealthgroup)
+[Join Wealth Group Credit Card Pay Now to Enhance Your Trading Skills](https://whop.com/wealthgroup?a=kelechienwere1234)
 
 ---
 
@@ -106,6 +106,6 @@ In the crowded space of crypto trading communities, Wealth Group Credit Card Pay
 
 Wealth Group Credit Card Pay offers a robust platform for individuals seeking to deepen their understanding of cryptocurrency trading. With its active community, expert analyses, and comprehensive educational resources, it caters to traders at various levels. However, potential subscribers should weigh the cost against the benefits and consider user feedback before committing.
 
-[Join Wealth Group Credit Card Pay Now to Take Control of Your Crypto Trading Journey](https://kelexbawz.com/wealthgroup)
+[Join Wealth Group Credit Card Pay Now to Take Control of Your Crypto Trading Journey](https://whop.com/wealthgroup?a=kelechienwere1234)
 
 ---
